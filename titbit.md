@@ -17,7 +17,18 @@ i lekkiej goryczki włoskich orzechów.*
 * 750 ml mleka,
 * kostka masła.
 Mąkę, żółtka, margarynę, proszek do pieczenia, cukier razem dokładnie posiekać i zagnieść.Podzielić na dwie części, które można zamrozić lub od razu wykładać na prostokątne blachy, wcześniej posmarowane tłuszczem i posypane bułką tartą. Oba placki posmarować powidłami śliwkowymi. Ubić pianę z białek ze szczyptą soli i stale ubijając dodawać stopniowo 1 szklankę cukru. Tak przygotowaną masę nałożyć na posmarowane powidłami oba placki. Ubite białka posypać orzechami włoskimi(około 30 dkg).Piec w temp. 180C przez około 20 minut na złoty kolor. Pozostawić do ostygnięcia.  
-Ugotować budynie w podanej ilości mleka. Utrzeć masło i dodać do niego porcjami wystudzony budyń. Po dokładnym wymieszaniu składników na koniec można dodać trochę alkoholu. Przełożyć placki masą budyniową
+Ugotować budynie w podanej ilości mleka. Utrzeć masło i dodać do niego porcjami wystudzony budyń. Po dokładnym wymieszaniu składników na koniec można dodać trochę alkoholu. Przełożyć placki masą budyniową i włożyć do lodówki.  
+* k
+* c
+* c
+* c
+* c
+* c
+* c
+* c
+c
+c
+
 
 
  
