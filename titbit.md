@@ -18,7 +18,13 @@ i lekkiej goryczki włoskich orzechów.*
 * 1 szklanka cukru,
 * białka z 5 jaj.  
 
-Wszystkie skadniki na ciasto razem dokładnie posiekać i zagnieść.Podzielić na dwie części, które można zamrozić lub od razu wykładać na prostokątne blachy, wcześniej posmarowane tłuszczem i posypane bułką tartą. Oba placki smarujemy powidłami śliwkowymi. Następnie ubijamy pianę z 5 białek ze szczyptą soli. Potem ciągle ubijając dodajemy stopniowo 1 szklankę cukru. Tak przygotowaną masę nakładamy na posmarowane powidłami oba placki. Ubite białka posypujemy orzechami.
+######Masa budyniowa  
+* 2 waniliowe budynie,
+* 750 ml mleka,
+* kostka masła.
+Wszystkie składniki na ciasto razem dokładnie posiekać i zagnieść.Podzielić na dwie części, które można zamrozić lub od razu wykładać na prostokątne blachy, wcześniej posmarowane tłuszczem i posypane bułką tartą. Oba placki posmarować powidłami śliwkowymi. Następnie ubić pianę z 5 białek ze szczyptą soli. Potem ciągle ubijając dodawać stopniowo 1 szklankę cukru. Tak przygotowaną masę nałożyć na posmarowane powidłami oba placki. Ubite białka posypać orzechami włoskimi(około 30 dkg).   
+Piec w temp. 180C przez około 20 minut na złoty kolor. Pozostawić do ostygnięcia. 
+
 
  
 
