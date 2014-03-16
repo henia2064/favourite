@@ -2,7 +2,7 @@
 *Jest wiele przepisów na wspaniale wyrośniętą i delikatną jak puch drożdżówkę. Mój ma tę zaletę, że taki efekt uzyskuje się przyrządzając ciasto przy pomocy miksera a nie męczącego wybijania ręką.*
 
 ***
-####Składniki 
+####Składniki (powinny mieć pokojową temperaturę)
 ######Zaczyn
 * 1 kostka drożdży(10 dkg),
 * 2 łyżki cukru,
