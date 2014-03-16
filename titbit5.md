@@ -19,10 +19,10 @@ Galaretki ugotowaś w 3/4 ilości podanej wody. Pozostawić do ostygnięcia. Ubi
 * 1 szklanka wody,
 * trochę cukru.
 
-#####Owoce do dekoracji    
+#####Owoce do dekoracji   
 (wg upodobania, mogą być z puszki lub sezonowe)
 
-Biszkopt przekroić dwa razy i nasączyć. Przełożyć masą śmietankową, którą  należy również posmarować wierzch biszkoptu. Na to położyć owoce. Zalać dobrze tężejącą galaretką, ale wcześniej zrobić formę z brystolu wokół biszkoptu. Po zastygnięciu galaretki zdjąć formę i boki posmarować masą.
+Biszkopt przekroić dwa razy i nasączyć. Przełożyć masą śmietankową, którą  należy również posmarować wierzch biszkoptu. Na to położyć owoce. Zalać dobrze tężejącą galaretką, ale wcześniej zrobić formę z brystolu wokół biszkoptu. Po zastygnięciu galaretki zdjąć formę i boki biszkoptu posmarować masą.
 
 
 
