@@ -1,1 +1,1 @@
- Dla niektórych czas spędzony w kuchni to czas stracony,codzienne zło konieczne. Dla innych możliwość poeksperymentow, na zachowanie dla następnych pokoleń ciekawych przepisów, przekazywanych z pokolenia na pokolenie.
+ Dla niektórych czas spędzony w kuchni to czas stracony,codzienne zło konieczne. Dla innych możliwość poeksperymentowania i tworzenia. W kuchni spędzamy dużą część naszego życia,dlatego warto ją polubić. Gotowanie jest również szansą na zachowanie dla następnych pokoleń ciekawych przepisów, przekazywanych z pokolenia na pokolenie.
