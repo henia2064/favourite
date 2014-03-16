@@ -12,7 +12,7 @@
 * 1 litr kremówki,
 * 2 owocowe galaretki.
 
-Galaretki ugotowaś w 3/4 ilości podanej wody. Pozostawić do ostygnięcia. Ubić śmietankę do zgęstnienia i dodać żelujące galaretki delikatnie mieszając. Wstawić do lodówki do stężenia.
+Galaretki ugotować w 3/4 ilości podanej wody. Pozostawić do ostygnięcia. Ubić śmietankę do zgęstnienia i dodać żelujące galaretki delikatnie mieszając. Wstawić do lodówki do stężenia.
 
 
 #####Poncz
