@@ -8,8 +8,8 @@
 * 2 łyżki cukru,
 * 1/2 szklanki mleka.
 
-Ciepłe składniki wymieszać i pozostawić do wyrośnięcia (uzyskując prawie pełen litrowy pojemnik).
-
+Ciepłe składniki wymieszać i pozostawić do wyrośnięcia (uzyskując prawie pełen litrowy pojemnik).   
+W tym czasie przygotować ciasto.
 ######Ciasto
 * 6 jaj,
 * szczypta soli,
@@ -21,17 +21,13 @@ Poszczególne składniki dodawać stopniowo w podanej kolejności cały czas mik
 Ciasto odstawić do wyrosnięcia w temp. 50 C  w piekarnika przy uchylonych drzwiczkach.
 
 ######Kruszonka  
-* białka z 5 jaj,
-* 1 szklanka cukru.  
+* 1/3 kostki masła,
+* 2 łyżki cukru,
+* 1 szklanka mąki,
+* 1 cukier waniliowy.
 
-######Masa budyniowa
-* 2 waniliowe budynie,
-* 750 ml mleka,
-* kostka masła.  
+Wyrośnięte ciasto przełożyć do formy wyłożonej papierem do pieczenia i posypać kruszonką. Wstawić do piekarnika nagrzanego do temp.180 C i piec przy użyciu grzałki górnej i dolnej przez około 30-40 minut. Po upieczeniu od razu wyjąć z pieca.
 
-Wszystkie składniki na ciasto razem dokładnie posiekać i zagnieść. Podzielić na dwie części, które można zamrozić lub od razu wykładać na prostokątne blachy, wcześniej posmarowane tłuszczem i posypane bułką tartą. Oba placki posmarować powidłami śliwkowymi. Ubić pianę z białek ze szczyptą soli i nadal ubijając dodawać stopniowo 1 szklankę cukru. Tak przygotowaną masę wyłożyć na posmarowane powidłami  placki. Ubite białka posypać orzechami włoskimi(około 30 dkg).  
-Piec w temp. 180C przez około 20 minut na złoty kolor. Pozostawić do ostygnięcia.  
-Budynie ugotować w podanej ilości mleka. Utrzeć masło i dodać do niego porcjami wystudzony budyń. Po dokładnym wymieszaniu składników na koniec można dodać trochę alkoholu. Przełożyć placki masą budyniową i włożyć do lodówki.   
 
  
 
