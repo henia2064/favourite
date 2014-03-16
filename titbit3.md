@@ -18,7 +18,7 @@ W tym czasie przygotować ciasto.
 * 1/2 szklanki oleju.  
 
 Poszczególne składniki dodawać stopniowo w podanej kolejności cały czas miksując. Do tak dobrze napowietrzonej masy stale mieszając dodać wyrośnięte drożdże i w porcjach po 1 łyżce **1 kg przesianej mąki tortowej**. Gdy ciasto zrobi się gęste resztę mąki wkręcić przy użyciu łyżki. Na koniec dodać olejek śmietankowy i według uznania inne dodatki jak rodzynki wczesniej namoczone i odsączone lub skórkę pomarańczową.    
-Ciasto odstawić do wyrosnięcia w temp. 50 C  w piekarnika przy uchylonych drzwiczkach.
+Ciasto odstawić do wyrośnięcia w temp. 50 C  w piekarnika przy uchylonych drzwiczkach(do wypełnienia pojemnika 5 litrowego).
 
 ######Kruszonka  
 * 1/3 kostki masła,
