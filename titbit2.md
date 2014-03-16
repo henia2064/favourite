@@ -21,4 +21,5 @@ z cukrem pudrem. Dodać żółtka oraz resztę składników. Na koniec dodać pi
 * sok z 1 cytryny,
 * roztwór z 1 łyżeczki kwasku cytrynowego i 2 łyżek wody.   
 
-Jaja z cukrem ubijać na parze do uzyskania gęstej masy. Ostudzić cały czas ubijając. Utrzeć masło i dodawać do niego stopniowo(żeby sie nie zważyła masa) po 1 łyżce ubitych jaj.
+Jaja z cukrem ubijać na parze do uzyskania gęstej masy. Ostudzić cały czas ubijając. Utrzeć masło i dodawać do niego stopniowo(żeby sie nie zważyła masa) po 1 łyżce ubitych jaj. Na koniec dodać skórkę i po kropelce sok z cytryny ciągle mieszając. Doprowadzić do smaku kwaskiem cytrynowym.   
+Ciasto makowe przekroić dwa razy i przełożyć masa cytrynową . Posmarować masa również górę i boki. Udekorować dowolnie.
