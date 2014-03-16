@@ -9,4 +9,5 @@
 * 2 czubate łyżki miodu,
 * olejek migdałowy,
 * 2 płaskie łyżeczki proszku do pieczenia.   
-Wieczorem mak spażyć mlekiem i zagotować.
+
+Wieczorem mak spażyć mlekiem i zagotować. Następnego dnia odsączyć i 3 razy zemleć. W makutrze utrzeć zmielony mak z cukrem pudrem. Dodać żółtka oraz reszte składników. Na koniec dodać pianę z białek i lekko wymieszać. Wstawić do ciepłego piekarnika i piec w temp. 180 C-200 C, aż wbi
