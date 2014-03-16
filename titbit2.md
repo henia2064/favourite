@@ -10,4 +10,15 @@
 * olejek migdałowy,
 * 2 płaskie łyżeczki proszku do pieczenia.   
 
-Wieczorem mak spażyć mlekiem i zagotować. Następnego dnia odsączyć i 3 razy zemleć. W makutrze utrzeć zmielony mak z cukrem pudrem. Dodać żółtka oraz reszte składników. Na koniec dodać pianę z białek i lekko wymieszać. Wstawić do ciepłego piekarnika i piec w temp. 180 C-200 C, aż wbi
+Wieczorem mak spażyć mlekiem i zagotować. Następnego dnia odsączyć i 3 razy zemleć. W makutrze utrzeć zmielony mak   
+z cukrem pudrem. Dodać żółtka oraz resztę składników. Na koniec dodać pianę z białek i lekko wymieszać. Wstawić do ciepłego piekarnika i piec w temp. 180 C-200 C, aż wbity patyk będzie suchy (około 1.5 godziny).   
+
+#####Masa
+* 10 całych jaj,
+* 2 szklanki cukru,
+* 3 kostki masła,
+* starta skórka z 1 cytryny,
+* sok z 1 cytryny,
+* roztwór z 1 łyżeczki kwasku cytrynowego i 2 łyżek wody.   
+
+Jaja z cukrem ubijać na parze do uzyskania gęstej masy. Ostudzić cały czas ubijając. Utrzeć masło i dodawać do niego stopniowo(żeby sie nie zważyła masa) po 1 łyżce ubitych jaj.
