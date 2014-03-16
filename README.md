@@ -5,4 +5,5 @@
 * [Tort makowo-cytrynowy](https://github.com/henia2064/favourite/blob/master/titbit2.md)
 * [Drożdżówka](https://github.com/henia2064/favourite/blob/master/titbit3.md)
 * [Biszkopt](https://github.com/henia2064/favourite/blob/master/titbit4.md)
+* [Tort śmietanowy](https://github.com/henia2064/favourite/blob/master/titbit5.md)
 
