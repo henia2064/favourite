@@ -5,7 +5,8 @@
 
 ####Składniki
 
-#####Biszkopt (upiec według przepisu)
+#####Biszkopt 
+(upiec według przepisu)
 
 #####Masa śmietankowa   
 * 1 litr kremówki,
