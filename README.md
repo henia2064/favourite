@@ -4,5 +4,5 @@
 * [Pani Walewska](https://github.com/henia2064/favourite/blob/master/titbit.md)
 * [Tort makowo-cytrynowy](https://github.com/henia2064/favourite/blob/master/titbit2.md)
 * [Drożdżówka](https://github.com/henia2064/favourite/blob/master/titbit3.md)
-* [Biszkopt]
+* [Biszkopt](https://github.com/henia2064/favourite/blob/master/titbit4.md)
 
