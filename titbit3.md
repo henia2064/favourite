@@ -8,7 +8,7 @@
 * 2 łyżki cukru,
 * 1/2 szklanki mleka.
 
-Ciepłe składniki wymieszać i pozostawić do wyrośnięcia (prawie pełen litrowy pojemnik).
+Ciepłe składniki wymieszać i pozostawić do wyrośnięcia (uzyskując prawie pełen litrowy pojemnik).
 
 ######Ciasto
 * 6 jaj,
@@ -17,9 +17,10 @@ Ciepłe składniki wymieszać i pozostawić do wyrośnięcia (prawie pełen litr
 * 1/2 szklanki mleka,
 * 1/2 szklanki oleju.  
 
-Poszczególne składniki dodawać stopniowo w podanej kolejności cały czas miksując. Do tak dobrze napowietrzonej masy stale mieszając dodać wyrośnięte drożdże i w porcjach po 1 łyżce **1 kg przesianej mąki tortowej**. Gdy ciasto zrobi się gęste resztę mąki wkręcić przy użyciu łyżki. Na koniec dodać olejek śmietankowy i według uznania inne dodatki jak rodzynki wczesniej namoczone i odsączone lub skórkę pomarańczową.
+Poszczególne składniki dodawać stopniowo w podanej kolejności cały czas miksując. Do tak dobrze napowietrzonej masy stale mieszając dodać wyrośnięte drożdże i w porcjach po 1 łyżce **1 kg przesianej mąki tortowej**. Gdy ciasto zrobi się gęste resztę mąki wkręcić przy użyciu łyżki. Na koniec dodać olejek śmietankowy i według uznania inne dodatki jak rodzynki wczesniej namoczone i odsączone lub skórkę pomarańczową.    
+Ciasto odstawić do wyrosnięcia w temp. 50 C  w piekarnika przy uchylonych drzwiczkach.
 
-######Beza  
+######Kruszonka  
 * białka z 5 jaj,
 * 1 szklanka cukru.  
 
