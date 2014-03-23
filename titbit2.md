@@ -24,4 +24,3 @@ z cukrem pudrem. Dodać żółtka oraz resztę składników. Na koniec dodać pi
 Jaja z cukrem ubić na parze do uzyskania gęstej masy. Ostudzić cały czas ubijając. Utrzeć masło i dodawać do niego stopniowo(żeby sie nie zważyła masa) po 1 łyżce ubitych jaj. Na koniec ciągle mieszając dodać skórkę i po kropelce sok z cytryny. Doprowadzić do smaku kwaskiem cytrynowym.   
 Ciasto makowe przekroić dwa razy i przełożyć masą cytrynową . Posmarować również masą górę i boki tortu. Udekorować według uznania.   
 
-![tort](http://zapodaj.net/05e47a54e5aac.jpg.html)
