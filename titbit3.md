@@ -14,6 +14,7 @@ W tym czasie przygotować ciasto.
 ######Ciasto
 * 6 jaj,
 * szczypta soli,
+* w zależności od uznania od 1/2 do 3/4 szklanki cukru,
 * 1/2 kostki margaryny np. "Kasia" roztopionej i przestudzonej,
 * 1/2 szklanki mleka,
 * 1/2 szklanki oleju.  
